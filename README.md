@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @rexgit1234
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+rexgit1234/rexgit1234 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->Microlending entices phone app registrations. Microloans using blockchain cryptocurrency, creates traceable transactions. Phone app users digitally register their business. Business owners and homeowners use apps to survey their land boundaries and upload to secure searchable databases. As data is uploaded governments convert squatter rights to homestead rights. Owners pay property taxes that fund the government. We are creating a database for public records and property taxes. Cryptocurrency = Goods and Services bypassing paper currency starves corrupt leaders of their tax revenue. Crypto digit dollar barter system. Digit dollars replace paper dollars. Microlending can be targeted to encourage economic migrants to stay in their home countries and have ownership of land. Property Rights and Human Rights  go hand in hand. Eventually the government sees steady tax revenue through property taxes. Over time all land ownership records become digital and public. Now the citizens can see who owns what land property and are they paying their taxes. From the President to the police chief, land records become public. Sunshine is the best disinfectant. 
+Please give us a chance to get this idea moving forward.
+
+Rex Parry 602-620-2009
